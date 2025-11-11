@@ -1,0 +1,7 @@
+**Thank you.** It has been a great year of both good and not so good experiences. The Army 250th Birthday was a big lift for our organization and we all contributed to the mission’s success.
+
+**LEA Roadmap Chapter 3** The primary goal was to **solidify the changes and improvements made over the last two quarters, making them robust and reliable.** So, we created, reviewed, and updated policy letters, continuity documents, and established our leader development program.
+
+**Our next chapter: Integration (01 July – 30 September).** The primary goal is to **merge different parts of the organization or incorporate new systems to streamline operations and improve our relationships.** This involves reviewing duty descriptions, consolidating workloads, and building unit battle drills.
+
+While we cannot predict everything that will happen for the next three months, what we can control is how much we set the conditions and standards for our success in any operational environment. I appreciate your continued support and feedback as we work towards making our organizations the best in the NCR. Thank you for **trusting** in my **vision** and **thank you in advance for your leadership and role in crafting that vision.**

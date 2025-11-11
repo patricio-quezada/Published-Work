@@ -1,0 +1,7 @@
+We continue to do amazing work in support of our assigned missions. I want to thank everyone who has played a key role in preparing Soldiers for training and the Soldiers attending and completing training.
+
+**LEA Roadmap Chapter 4** The primary goal was to **merge different parts of the organization and incorporate new systems to streamline operations and improve our relationships.** We successfully reviewed all duty descriptions, provided standardized templates, and re-distributed workload across both organizations to create better operational balance.
+
+**Our next chapter: Acceleration (01 October – 31 December)** focuses on moving faster to accomplish our tasks and achieve our goals. While this will inevitably create stress and discomfort, the outcome will be **established TTPs, battle drills, and enhanced knowledge sharing** that make us more agile and responsive.
+
+While we cannot predict what is going to happen with the Civilian hiring freeze, overtime reduction, and a government shutdown, we can control how well we prepare for high-tempo operations and set the conditions for success in any role we are asked to serve. **Bottom line: We are building organizational speed and muscle memory that will serve us when the mission demands a rapid response.**

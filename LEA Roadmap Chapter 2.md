@@ -1,0 +1,11 @@
+**Thank you** for an amazing first seven (7) months in command and for all the hard work that went into the transition from 241st to LEA.
+
+**LEA Roadmap Chapter 1** Our primary goal from October to December was to make our organization a welcoming place for incoming Soldiers. We looked at the entire “onboarding” process, how we build our teams, and ways we can enrich our relationships on Fort Meade. **I believe we have made significant progress in all three areas and continue to improve our fighting position**.
+
+**Our next chapter: February and March 2025.** Our focus is to bolster the progress we made while refining the systems and processes that allow us to be lethal.
+
+- **Unit Onboarding.** Now that the Detachment Sergeant is the ACT administrator and we have better control of assigning sponsors to Soldiers, we want to focus on the next objective. **We want to make information about the unit and Fort Meade easy to find.** One of the ways we want to do it is to create a LEA SharePoint site.
+- **Team Building.** We set out to increase the number of training days for the unit. Now that Soldiers are not bound to watches on the DA 6, we have more flexibility to plan training moving forward. **Every Wednesday, we expect NCOs to train Soldiers. We will begin asking Section NCOICs for training plans and expect that Wednesdays turn into a “Sergeant Time Training.”** Over the next 45 days, expect to also go down to Fort McNair for a Joint Operations Center (JOC) LPD.
+- **Fort Meade Enterprise.** We have identified a trusted agent for the upcoming full scale exercise in April. SSG Boucher is also working on a unique training opportunity with Counterintelligence Command that will give us an opportunity to complete Physical Security training.
+
+This next chapter is crucial to the success to the Dragoons and Watchdogs still here and those coming into the unit. While we cannot predict everything that will happen for the next three months, this should hopefully capture all the higher-level outcomes we accomplished and our current objectives for the next two months. I appreciate your continued support and feedback as we work towards making our organizations the best in the NCR. **Thank you for trusting in my vision and thank you in advance for your leadership and role in crafting that vision.**
