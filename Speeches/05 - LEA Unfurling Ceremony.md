@@ -1,8 +1,3 @@
----
-Date: 2024-12-12
-Tags: Speeches
----
-
 # Unfurling Ceremony
 
 Good morning Colonel Danner, Colonel Gore, Lieutenant Colonels Yama, Griffith, and Reynolds, Major Smith, Command Sergeants Major Moore and Krese, Chief Alveris, Master Sergeant Molczan, the PMO Team, friends, families, and honored guests. Thank you for making the time to be here today. It is rare to have all the key stakeholders in one room.
