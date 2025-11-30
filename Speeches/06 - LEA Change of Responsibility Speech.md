@@ -1,86 +1,42 @@
 LEA Change of Responsibility
 
-
-
 I was once in a similar position. A little over two years, I gave a speech where I was welcoming a senior non-commissioned officer to an organization I commanded.
-
-
 
 Up to that point, that organization did not have a solid history of senior NCO leadership. Before SFC McNutt, the MPs did not either.
 
-
-
 The outgoing First Sergeant, became the First Sergeant out of a special circumstance. SFC McNutt was as well.
-
-
 
 There are so many similarities, it is hard to say that this is all coincidence. As the saying goes, "history may not repeat itself, but it does rhyme."
 
-
-
 Before I speak directly to these two phenomenal NCOs and their loved ones, I want to set the tone for the rest of this speech.
-
-
 
 We officers may spend up to a quarter of our time serving in our key developmental positions. That means that, we spend up to a quarter of our most formative years working alongside senior non-commissioned officers. One of the most important lessons I have learned from NCOs is that leadership is about enabling the expertise of others, not being an expert yourself. This lesson is invaluable when you consider that the scarcity of KD time makes every NCO interaction a developmental opportunity officers can't afford to waste.
 
-
-
 Okay so now...I am going to get to the hardest part of the speech....addressing these stellar NCOs...
-
-
 
 But before I address you directly SFC McNutt, I want to thank Lynn first. Lynn, thank you for allowing him to wake up early, work over the weekends, and allow him to vent his frustrations to you. Without you, he would not be the successful NCO he is today.
 
-
-
 Now...SFC McNutt
-
-
 
 I know that the circumstances resulting in your selection for this role and the circumstances leading to this occasion were not always clear - but what is clear to me from our time together is that you understand what your two basic responsibilities are: the accomplishment of the mission and the welfare of your Soldiers. Thank you Brother for your trust, commitment, and Brotherly Love.
 
-
-
 You know you can always count on me. Best of luck at the Garrison and then Hunter Army Airfield shortly after that. The LEA there is going to benefit immensely from your leadership.
-
-
 
 To SFC Serrano, David, {insert kid's names} - Welcome to the Dragoons! Also welcome as a close friend to the Watchdogs. Combined we are about 53 Soldiers.
 
-
-
 Sure, we're a small unit, but at least we're not the Giants - they've got 53 players and can't win a game. I apologize I couldn't help myself, as a Commander's fan I had to work in a Giants joke.
-
-
 
 David, thank you for being here.
 
-
-
 Kids your mom is a superhero. I know she may be mom to you, but to some of the Soldiers in this room starting today she will be their superhero - she will be an inspiration, a role model, a disciplinarian, and the reason why they will drink over the weekend (if they are of age). I am also glad that my kid's are no longer going to hijack my military ceremonies anymore.
-
-
 
 SFC Serrano, you are the right NCO for the organization at this moment in time. The organization is but a year old - a baby. As with babies, we are just learning to walk and doing certain things for the first time. We are also taking giant strides in our organizational development. I know that you are the right NCO to give us the foundation that will allow us to walk on our own and build trust in ourselves.
 
-
-
 The LEA is on call, on guard, and on mission. As we aim to be the best MP unit in the NCR, it takes steadfast NCOs, fearless Soldiers, and transformative leadership. The organization is ready to run.
-
-
 
 From the Quezada family, the Dragoons, and the introverted Watchdogs...we formally welcome you.
 
-
-
 "Heed the Guardian"
-
-
-
 "Support and Defend"
-
-
-
 "Without Equal"
 

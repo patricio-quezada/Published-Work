@@ -1,5 +1,4 @@
 # Unfurling Ceremony
-
 Good morning Colonel Danner, Colonel Gore, Lieutenant Colonels Yama, Griffith, and Reynolds, Major Smith, Command Sergeants Major Moore and Krese, Chief Alveris, Master Sergeant Molczan, the PMO Team, friends, families, and honored guests. Thank you for making the time to be here today. It is rare to have all the key stakeholders in one room.
 
 I will be honest, I was not sure how the changeover to an LEA would go or how to explain it to the formation or anyone else. Today I am going to try.  Switching to the LEA has been like switching conferences in college football. Let us take the Army Black Knights. They played independently for much of their existence and now they are the American Athletic Conference (AAC) conference champions.
